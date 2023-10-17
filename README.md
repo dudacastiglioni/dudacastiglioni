@@ -1,5 +1,5 @@
 - 👋 Oi! Eu sou @dudacastiglioni
-- 👀 Estou estudando no SENAI
+- 👀 Estou estudando no SENAI.
 - 🌱 Ainda aprendendo sobre o assunto.
 - 📫 Para se comunicar comigo utilize: (75) 991318857
 
